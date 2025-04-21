@@ -36,6 +36,6 @@ Dnyansagar Institute of Management & Research, Pune
 Affiliated to Savitribai Phule Pune University (SPPU)
 
 
-Email: [Your Email]
+Email: [rohitbansode.tech@gmail.com]
 
 LinkedIn: [(https://www.linkedin.com/in/rpb16/)]
